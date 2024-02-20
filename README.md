@@ -21,19 +21,15 @@
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- ➪ 𝙽𝙰𝙼𝙴 :- 
+- ➪ 𝙽𝙰𝙼𝙴 : 𝐕𝐘𝐀𝐒𝐀𝐍 𝐁 𝐌𝐀𝐓𝐇𝐄𝐖
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- ➪ 𝚁𝙴𝙻𝙸𝙶𝙸𝙾𝙽 :- 
+- ➪ 𝚁𝙴𝙻𝙸𝙶𝙸𝙾𝙽 : 𝐇𝐈𝐍𝐃𝐔
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- ➪ 𝙴𝙳𝚄𝙲𝙰𝚃𝙸𝙾𝙽 :- 𝚂𝚃𝚄𝙳𝚈
-
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
-
-- ➪ 𝚁𝙴𝙻𝙰𝚃𝙸𝙾𝙽𝚂𝙷𝙸𝙿 :- 𝚂𝙸𝙽𝙶𝙻𝙴
+- ➪ 𝚁𝙴𝙻𝙰𝚃𝙸𝙾𝙽𝚂𝙷𝙸𝙿 : 𝐒𝐈𝐍𝐆𝐋𝐄
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
