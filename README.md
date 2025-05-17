@@ -21,19 +21,11 @@
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- ➪ 𝙽𝙰𝙼𝙴 : 𝐕𝐘𝐀𝐒𝐀𝐍 𝐁 𝐌𝐀𝐓𝐇𝐄𝐖
+- ➪ 𝙽𝙰𝙼𝙴 : Rocky
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- ➪ 𝚁𝙴𝙻𝙸𝙶𝙸𝙾𝙽 : 𝐇𝐈𝐍𝐃𝐔
-
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
-
-- ➪ 𝚁𝙴𝙻𝙰𝚃𝙸𝙾𝙽𝚂𝙷𝙸𝙿 : 𝐒𝐈𝐍𝐆𝐋𝐄
-
-<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
-
-- ➪ 𝙸𝙽𝚂𝚃𝙰𝙶𝚁𝙰𝙼 :- [𝐕𝐘𝐀𝐒𝐀𝐍__𝐁__𝐌𝐀𝐓𝐇𝐄𝐖](https://www.instagram.com/vyasan__b__mathew)
+- ➪ 𝙸𝙽𝚂𝚃𝙰𝙶𝚁𝙰𝙼 :- [@blrx.rocky](https://www.instagram.com/blrx.rocky)
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
